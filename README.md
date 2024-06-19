@@ -4,4 +4,5 @@
 - Hi, I’m @threeFeetCat123
 - I'm a student in China, hoping to meet some interesting people on github！
 
-![1GV9E3%}8X CRPEWC_` G9I](https://github.com/threeFeetCat123/threeFeetCat123/assets/124332948/685876c8-9868-4ae9-9ff5-66ac93bdb4a0)
+![image](https://github.com/threeFeetCat123/threeFeetCat123/assets/124332948/f55f1981-48bc-4161-8ac3-a7337af0e153)
+
